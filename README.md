@@ -1,0 +1,2 @@
+# Yapayzrka
+Yapay zeka
